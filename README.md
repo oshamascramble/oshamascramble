@@ -1,4 +1,4 @@
-### Hi there 👋
+‼️‼️‼️HOLY SHIT‼️‼️IS THAT A MOTHERFUCKING TUYU REFERENCE????!??!?!???!!!!!! ☔️🌂🌂☔️🌧☔️🌧☔️🌧🌂☔️☔️🌧☔️😱😱😱😱 TUYU IS THE BEST FUCKING JAPANESE MUSIC UNIT☔️☔️☔️🌧🌂☔️🌧🌂🌂☔️‼️‼️💯💯💯🔥🔥🔥🔥 KURA IS SO BADASS 😎😎😎😎😎😎😎🔥🔥🔥👊👊👊👊👊‼️‼️🌂☔️☔️🌂🌂🌧🌂🌧🌧☔️☔️☔️🌧🌂🌂🌧 TUYU IS THE BEST ☔️ TUYU IS THE BEST ☔️ TUYU ISTHEBESTTUYUISTHEBESTTUYUISTHEBESTTUYUISTHEBEST☔️😩😩😩😩😩😩☔️☔️🌂☔️🌧🌂🌂🌂☔️🌧 AHHHHH KURABERARREKO KURABERARREKO 😡😡😡‼️‼️‼️💯💯‼️💯💯💯 DAKEDO YAPPARI AME WA FURRUN D
 
 <!--
 **RottenHeresy/RottenHeresy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
