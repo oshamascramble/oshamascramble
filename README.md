@@ -1,5 +1,5 @@
 <p align="center">
-  <code>UTAUbot.exe ⠀ ⠀ ⠀⠀ ⠀  ⠀⠀⠀⠀⠀ _⠀❐⠀X</code>
+  <code>shitenshi.exe ⠀ ⠀ ⠀⠀ ⠀  ⠀⠀⠀⠀⠀ _⠀❐⠀X</code>
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/c7uann.png" width="250px">
