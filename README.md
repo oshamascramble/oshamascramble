@@ -2,7 +2,7 @@
   <code>oshamascramble.exe ⠀ ⠀ ⠀        ⠀ ⠀  ⠀⠀⠀_⠀❐⠀X</code>
 </p>
 <p align="center">
-<img src="https://file.garden/ZeWhoxo9KEiz9dHt/Gk--HwvXYAAt4hr.jpg" width="340px">
+<img src="https://file.garden/ZeWhoxo9KEiz9dHt/Gk--HwvXYAAt4hr.jpg" width="320px">
 </p>
 <p align="center">
   <a href="https://bundlrs.cc/oshama">info</a> ⠀ ⠀⠀ ⠀
