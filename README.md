@@ -1,5 +1,5 @@
 <p align="center">
-  <code>oshamascramble.exe ⠀ ⠀ ⠀        ⠀ ⠀  ⠀⠀⠀_⠀❐⠀X</code>
+  <code>konpeitosan.exe ⠀ ⠀ ⠀        ⠀ ⠀  ⠀⠀⠀_⠀❐⠀X</code>
 </p>
 <p align="center">
 <img src="https://file.garden/ZeWhoxo9KEiz9dHt/Gk--HwvXYAAt4hr.jpg" width="300px">
