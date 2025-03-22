@@ -6,6 +6,6 @@
 </p>
 <p align="center">
   <a href="https://bundlrs.cc/oshama">info</a> ⠀ ⠀⠀ ⠀
-  <a href="https://oshamascramble.github.io/">Webサイト(wip)</a> ⠀ ⠀⠀⠀  ⠀ ⠀
+  <a href="https://konpeitosan.github.io/">Webサイト(wip)</a> ⠀ ⠀⠀⠀  ⠀ ⠀
   <a href="https://miku.atabook.org/">新book</a>
 <p>
